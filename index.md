@@ -1,7 +1,9 @@
 # My Wellness
 
-1- Get up early and finish all work and errands as early as possible.
+1- Go fishing
 
-2- Use the rest of the day for personal growth and relaxation.
+2- Cruise in the car
+
+3- Watch tv
+
  
-3- Plan regular fun activities. 
